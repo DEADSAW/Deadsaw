@@ -1,4 +1,4 @@
-# Hi, I'm DEADSAW 👋
+# Hi, I'm SANGAM RAI 👋
 
 **Developer | AI/ML Enthusiast | Mobile App Creator**
 
